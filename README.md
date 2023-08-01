@@ -1,2 +1,0 @@
-# ozbara.co
- 
